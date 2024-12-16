@@ -28,7 +28,7 @@
 
 ### 📫 Reach me here:  
 📧 **skrehangamer@gmail.com**  
-🌐 **skrehan.in**  
+🌐 **www.skrehan.in**  
 
 ---
 
